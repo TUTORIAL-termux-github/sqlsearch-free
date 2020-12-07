@@ -1,1 +1,1 @@
-Tool deleted ❌
+Tool deleted 
